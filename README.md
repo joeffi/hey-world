@@ -10,4 +10,4 @@ A: Virtue
 Q: Who is the suffering man?
 A: Husband
 
-Conclusion:  ?
+Conclusion:  Husband preserves virtue by sacrifice.
